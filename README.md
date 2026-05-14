@@ -28,4 +28,4 @@ I specialize in building high-impact mobile applications using **Flutter & Fireb
 
 ---
 
-📫 **How to reach me:** [Link to your LinkedIn once it's ready]
+📫 **How to reach me:** [www.linkedin.com/in/frances-okoro-92b698268]
